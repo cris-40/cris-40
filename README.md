@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+me considero una persona creativa, proactiva, confiable, me gusta trabajar en equipo y aprender de diferentes puntos de vista.
+empleos
+2014 a 2018
+operaria de laboratorio "lemax"
